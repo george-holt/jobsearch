@@ -1,6 +1,6 @@
 Throughout the last year many have checked to see if I was “okay”, as Amazon has encouraged employees to “return to office”.  Previously, I said; “Yes. I’m okay for now. We’ll see what happens.” Until now.
 
-I love the people I work with and I love working on software and developer tools. But next year Amazon will require that I relocate from Houston to Seattle.
+I love the people I work with and I love working on software and developer tools. But in 2024 Amazon will require that I relocate from Houston to Seattle.
 
 In 2022 I relocated my family (with 2 school-age kids) to Houston -  and we are still just settling in. That was hard. Finding another new home (in this market!), packing up, changing schools, and starting over again in Seattle would be a very hard choice to make.
 
